@@ -1,0 +1,5 @@
+asbot_plugin_furry_mzxyy
+
+毛主席一言
+
+作者hmQQ3322969592
